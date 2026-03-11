@@ -1,4 +1,4 @@
-# 🚀 Mini Guia Estratégico: Como Conseguir Estágio em TI usando LinkedIn, Gupy e GitHub
+# 🚀 Mini Guia Estratégico: Como Conseguir Estágio em TI usando LinkedIn, Gupy e GitHub - NOTEBOOKLM
 
 ## 📌 Sobre o Projeto
 
